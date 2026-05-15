@@ -1,4 +1,4 @@
-# 
+# advanced Wave for PC | Wave for Windows Module | accounting + receipt-capture offers the most advanced Wave for PC | Wave for Windows module, with accounting and receipt-capture.
 
 
 
